@@ -1,0 +1,5 @@
+- [https://www.quora.com/profile/Hope-Kudryashovy](https://www.quora.com/profile/Hope-Kudryashovy)
+- [https://www.reddit.com/user/Beneficial_Web968/](https://www.reddit.com/user/Beneficial_Web968/)
+- [https://x.com/hopekudryashovy](https://x.com/hopekudryashovy)
+- [https://www.youtube.com/channel/UCatiJBnWbfNcFv1lyGi6ccQ](https://www.youtube.com/channel/UCatiJBnWbfNcFv1lyGi6ccQ)
+- [https://hopekudryashovy.github.io](https://hopekudryashovy.github.io) 
